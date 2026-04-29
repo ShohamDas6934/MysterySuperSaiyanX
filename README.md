@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MysterySuperSaiyanX
+- 👋 Hi, I’m @ShohamDas6782
 - 👀 I’m interested in gaming,coding and learning 
 - 🌱 I’m currently learning c 
 - 💞️ I’m looking to collaborate on new projects on the base of coding
