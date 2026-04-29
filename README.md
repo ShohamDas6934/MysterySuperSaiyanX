@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ShohamDas6782
+- 👋 Hi, I’m @ShohamDas6934
 - 👀 I’m interested in gaming,coding and learning 
 - 🌱 I’m currently learning c 
 - 💞️ I’m looking to collaborate on new projects on the base of coding
